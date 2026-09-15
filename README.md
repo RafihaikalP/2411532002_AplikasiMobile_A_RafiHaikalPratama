@@ -1,1 +1,0 @@
-# 2411532002_AplikasiMobile_A
